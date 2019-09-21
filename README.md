@@ -15,4 +15,6 @@ ND / paulumi
 
 By_ NuzulDzikri27
 selamat bersenang-senang
+Dansengsara
 
+sengsara
